@@ -6,10 +6,10 @@ Here are some ideas to get you started:
 - 🪐 Pronouns: she/they
 - 🌈 PFLC student
 - ☂️ TICS
-- 🫧 How to reach me: ...
-- 🍁 Pronouns: she/they
+- 🍄 Aprendiendo con mis chocoaventuras
+- 🍂 AutumLover
 - 🌻 Eu não sou boa influência pra você
-- 🍄 Ando distraído entre as nuvens
+- 🍁 Ando distraído entre as nuvens
 
 
 # HORARIO
